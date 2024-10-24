@@ -2,7 +2,7 @@
 
 설명 작성중
 
-[Road Map](https://www.notion.so/129f70de1e608027b7c8ffbe7d9e1044?pvs=4)
+[Notion](https://www.notion.so/Med-Hunter-129f70de1e608077a660ceed143584aa?pvs=4)
 
 
 
