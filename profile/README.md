@@ -2,7 +2,6 @@
 
 설명 작성중
 
-[Project](https://www.notion.so/129f70de1e60802ab807db0113d051a9?pvs=4)
 [Road Map](https://www.notion.so/129f70de1e608027b7c8ffbe7d9e1044?pvs=4)
 
 
